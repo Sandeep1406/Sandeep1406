@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sandeep1406
 - 👀 I’m Currently pursuing my bachelors in CSE in NIT,Patna
 - 🌱 I’m Interested in Reading, Playing and trying to Update myself everyday..!!
-- 💞️ I’m Passionate of doing my masters abroad.
+- 💞️ I’m Passionate of doing my Masters abroad.
 - 📫 U can contact me anytime...
 
 <!---
